@@ -1,1 +1,1 @@
-# bio-fresh
+# Bio-Fresh Group LTD Privacy Policy
